@@ -1,4 +1,5 @@
 ## Shadows
+Categories: `LIFE IS WEIRD` `LYRICS`
 
 Quit trying to outrun your shadow
 You know that it’s mid-day

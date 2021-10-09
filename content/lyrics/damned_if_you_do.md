@@ -1,4 +1,5 @@
 ## Damned If You Do
+Categories: `LIFE IS WEIRD` `LYRICS`
 
 High highs and low lows
 No I don’t fit in between those

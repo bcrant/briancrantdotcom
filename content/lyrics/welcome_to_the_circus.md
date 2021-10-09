@@ -1,4 +1,5 @@
 ## Welcome to the Circus
+Categories: `LIFE IS WEIRD` `LYRICS`
 
 Finally got my affairs in order 
 Got my affairs in order… well, sort of

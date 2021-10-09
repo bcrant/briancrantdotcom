@@ -1,4 +1,5 @@
 ## Sketchy
+Categories: `LIFE IS WEIRD` `LYRICS`
 
 Started out sketchy
 Told her do one thing: forget me

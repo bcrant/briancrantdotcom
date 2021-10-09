@@ -1,4 +1,5 @@
 ## Dune Beach
+Categories: `LIFE IS WEIRD` `LYRICS`
 
 Quick sand on Dune Beach
 Slide down a little further

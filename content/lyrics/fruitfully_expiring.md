@@ -1,4 +1,5 @@
 ## Fruitfully Expiring
+Categories: `LIFE IS WEIRD` `LYRICS`
 
 Step outside and I hear sirens
 I think to myself inside that
