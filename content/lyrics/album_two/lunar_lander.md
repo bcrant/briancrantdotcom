@@ -42,16 +42,15 @@ I want her heart to fill the whole night's sky
 show the world what her love feels like
 
 VERSE 3
-She's got a heart of gold and a smile to melt, 
+She’s got a heart like John Hancock’s signature
+She’s Intergalactic Shampoo and the Human Conditioner
+
+She's got-a-heart-of-gold – and a smile to melt
 She's the only gem you can't find in the asteroid belt
 
-She's out of this world, I'm trying to keep up, 
-She calls me buzz lightyear when she wants my love
-
 PRE CHORUS
-So many atriums, so little time
-I'm gonna orbit her heart til it knows that it's mine
-orbit her heart til it knows that it's mine
+She's out of this world, I try to keep up
+She calls me buzz lightyear when she wants my love
 
 CHORUS
 I want her heart to fill the whole night's sky
