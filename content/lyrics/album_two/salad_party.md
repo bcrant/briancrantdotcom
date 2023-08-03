@@ -6,6 +6,16 @@ Salad Party
 CHORDS
 Cm11    F
 
+Riff
+                           Cm11
+e|----------------------|-----| ...
+B|----------------------|-4-4-| ...
+G|----------------------|-3-3-| ...
+D|---------3-3-1----1---|-1-1-| ...
+A|-----0h3------------1-|-3-3-| ...
+E|-1-1------------------|-----| ...
+
+
 VERSE 1
 Dumb dumb spoke and what he said wasn't dumb
 but he's the last one on earth she wants to hear this from
@@ -42,14 +52,16 @@ VERSE 2
 Well a salad party sounds like a whole lot of fun
 But she can't stop thinkin' 'bout what he done done 
 <!-- alt: "but her whole day's ruined cos of what dumb dumb done done" -->
-> She's really gonna show him this tiiiime, yeeee•aaaa
+She's really gonna show him this tiiiime, yeeee•aaaa
 She's got the fury of nations, a half dozen roma tomatoes,
-She's been practicing her aim with a bottle on a tree stump
+She's been practicing her aim -
+with a bottle on a tree stump
 She's gonna hit him right between the eyes, yeeee•aaaa
 
 Dumb dumb's got another thing coming
 she's gonna make him one saucy pizza pie
-or some au naturel ketchup bullshit from the healthy foods aisle
+or some au naturel ketchup bullshit -
+from the healthy foods aisle
 All that mess, or you could take ten breathes, 
 go to your garden and put all that behind ya...
 NO NO she said dumb dumb's gonna pay, yeeee•aaaa
