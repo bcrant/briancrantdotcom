@@ -8,18 +8,16 @@ G#  D#  Cm  C#  G#
 
 VERSE 1
 I can't put my finger on it, don't know how to explain
-When she talks about socialism, I want to kiss her brain
+When she talks about socialism, I want to kiss her brain (yeeaah)
 
-We don't always have to agree, we can understand in time
-When she talks about socialism, I want to kiss her mind
-<!-- OR -->
-We don't always have to agree, I just want to understand
-When she talks about socialism, I want to kiss her pants
+We don't have to agree on things, for us to be aligned
+When she talks about socialism, I want to kiss her mind 
 
 CHORUS
 Talking bout my soulmate socialist
+My socialist soulmate 
 Talking bout my soulmate socialist
-She's my commie mami (yeeaah)
+My commie mami (yeeaah)
 
 VERSE 2
 She's not so keen on capitalism, but I can live with that
