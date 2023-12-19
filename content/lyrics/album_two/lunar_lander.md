@@ -13,11 +13,11 @@ Drop my Mars Rover right on her left ventricle
 
 PRE CHORUS
 A#          
-So many atriums, so little time
+So much surface, so little time
 G#
-I'm gonna X-Ray her heart with my moon satellite
-A#                           G#
-X-Ray her heart with my moon satellite
+I'm gonna orbit her heart til it knows that it's mine
+A#                                     G#
+orbit her heart til it knows that it's mine
 
 CHORUS
        Eb5        D/Ebmaj7          Cmin11        A#5  !! Fm !!
@@ -33,7 +33,7 @@ She's got a heart that can love every part of me
 My good and my bad in her pulmonary artery 
 
 PRE CHORUS
-So many atriums, so little time
+So much surface, so little time
 I'm gonna X-Ray her heart with my moon satellite
 X-Ray her heart with my moon satellite
 
@@ -45,12 +45,13 @@ VERSE 3
 She’s got a heart like John Hancock’s signature
 She’s Intergalactic Shampoo and the Human Conditioner
 
-She's got-a-heart-of-gold – and a smile to melt
+She's got a heart-of-gold and a smile to melt
 She's the only gem you can't find in the asteroid belt
 
-PRE CHORUS
+BRIDGE
 She's out of this world, I try to keep up
 She calls me buzz lightyear when she wants my love
+calls me buzz lightyear when she wants my love
 
 CHORUS
 I want her heart to fill the whole night's sky
@@ -64,7 +65,7 @@ She's got a heart that can love every part of me
 My day and my night in her pulmonary artery
 
 PRE CHORUS
-So many atriums, so little time
+So much surface, so little time
 I'm gonna orbit her heart til it knows that it's mine
 orbit her heart til it knows that it's mine
 
