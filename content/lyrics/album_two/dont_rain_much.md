@@ -27,25 +27,26 @@ CHORUS
 Fall, fall back again  
 Take back your sky water  
 Have back your clouds  
-We're already soaked  
+We're already drowning  
 Don't need your help  
-Floaties and boats  
-Don't need your wet  
+We got floaties and boats  
+Don't need your wetssss...  
   
 VERSE 2  
-The clouds are fucking crying  
-Grown man boy child whining  
 What if heaven gets to heavy  
 and falls down on our cities  
 All the dead people are living  
 Would they visit their own graves?  
 Can we reclaim that space?  
 It don't rain much, but when it do  
-This is what I think  
+These are the things I think  
 It don't rain much, but when it does  
 Heaven's going down  
 and rent is going up  
   
+CHORUS  
+
+VERSE 3  
 Can't write songs full of details  
 Everything's mundane  
 Every word is somebody's brand name  
@@ -58,5 +59,8 @@ I've lost the plot and now I've lost the point
 Can't afford to take a stand  
 Here I sit at my desk  
 Who's gonna clean up this mess  
-  
-CHORUS
+
+
+EXTRAS  
+The clouds are fucking crying  
+Grown man boy child whining  

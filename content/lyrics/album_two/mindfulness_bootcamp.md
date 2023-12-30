@@ -23,7 +23,6 @@ Kill it all now... 'til there's no ego left
 Won't you die, ego die... like it says on the pamphlet  
 Die ego, die... at the mindfulness bootcamp  
   
-VERSE 2  
 I won't put in the work... but I'll go for a weekend  
 Kill it dead now... or give me a refund  
 The only way to grow... is if my ego dies  
@@ -31,28 +30,31 @@ You have my full attention... until Sunday at five
   
 INSTRUMENTAL BREAK  
   
-VERSE 3  
+VERSE 2  
 Got no peace of mind... just pieces – most of the time  
 No good at meditation... tried the Calm app twice  
 Too many notifications... I'm a very busy guy  
+  
+I'd go to a group... if it were all about me  
+I'd see a shrink... if they didn't talk about feelings  
 Tried the medications... I need more things to try  
+
+INSTRUMENTAL BREAK  
   
 VERSE 3  
+Went and bought a sunlamp... still not happy or enlightened  
+Ego bigger than jesus... I'm in every hotel nighstand  
+I can't stand myself... there's only one thing left to try then  
+  
 I dosed the orange juice... drank the orange juice for breakfast  
 Everyday for a whole month... ego still like Texas  
 I'm making microchanges... and expect macro results  
-Tried to microkill my egoo... my ego survived  
-  
-INSTRUMENTAL BREAK  
+Tried to microkill my ego... my ego survived  
   
   
   
   
 EXTRAS  
-I'd go to a group... if it were all about me  
-I'd see a shrink... if they didn't talk about feelings  
-  
 When I meditate... I hear my ego laughin  
 "What are you doing? You can't even sit still in traffic"  
   
-Went and bought a sunlamp... still not happy or enlightened
